@@ -12,7 +12,7 @@ però has de fer així com jo dic.
 
 Posa el peu descalç només damunt les meves petjades.
 Escolta bé el silenci, 
-obre bé els ulls per furgar la penombra.
+obre bé els ulls per furgar les ombres.
 Avança aguantant la respiració.
 
 ---
@@ -31,5 +31,5 @@ but you must do as I say.
 
 Put your bare foot only on top of my footprints.
 Listen carefully to the silence,
-open your eyes wide to sift through the penumbra.
+open your eyes wide to sift through the shadows.
 Advance while holding your breath.

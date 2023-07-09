@@ -6,9 +6,10 @@ El tacte fred de l'absurd i el buit es diposita sobre la pell i desdibuixa l'ord
 
 No pateixis, l'escalfor tornarà encara moltes vegades.
 Tota mena de formes i ombres ompliran l'espai.
-Tanmateix, imaginar el llindar fa mal.
-Voldria no desaparèixer si tanco els ulls.
+Tanmateix, imaginar el llindar fa mal. 
+Voldria no desaparèixer si tanco els ulls. 
 Voldria que tu no ho fessis quan els obro.
+
 ------
 
 Dread clasps around you the instant before falling asleep.

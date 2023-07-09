@@ -16,6 +16,7 @@ eres només una siuleta negra.
 
 Vaig tornar a tancar els ulls. 
 
+---
 
 We were the only ones outside, part of the few who managed to get out of bed. 
 We played with a plastic ball on the paved courtyard, a rather pointless game, and talked. After a while,
