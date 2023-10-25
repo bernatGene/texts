@@ -9,8 +9,10 @@ Pot ser això un presagi de canvi?
 Al vespre ens abraça la brisa taciturna,  
 Ens banya la llum rosada,  
 I, en aquest silenci, ja no punxen,  
+
 Quan se'm tanquen els ulls.  
---  
+
+--__
   
 Under the last sun of summer,  
 The wind shook the pines on the castle hill.  

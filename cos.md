@@ -1,6 +1,6 @@
 On dins el meu cos, s'amaga aquesta  
 Pedra de vergonya i soledat? Arrencaria cada cabell,  
-manyoc a manyoc començant pel clatell, per investigar l'arrel.  
+manyoc a manyoc començant pel clatell, per investigar-ne l'arrel.  
 Clavaria les ungles profundament a les plantes del peu,  
 estirant per separar la pell de la carn  
 i penjar-la com un abric mullat de pluja.  

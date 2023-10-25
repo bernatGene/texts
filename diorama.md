@@ -6,14 +6,11 @@ Intueixo el meu reflex a la pantalla del televisor apagat.
 Jec en una posició un pèl macabra.  
 Fa estona que no passa cap cotxe pel carrer.  
   
-I tinc aquella sensació,  
-aquell efecte diorama  
-com si fos tot escenografia.  
 Una obra de teatre mut sense públic,  
 ninots de cera al museu marítim,  
 El pessebre amb figures enormes  
-a l'església de l'escola.  
-Una casa de nines dins l'armari.  
+a l'església de l'escola.
+Llum d'escenografia en un bar.
   
 Quan vaig llogar el pis era buit,  
 i caldrà buidar-lo quan marxi.  
@@ -28,14 +25,11 @@ I can barely make out my reflection on the screen of the unplugged TV.
 I lay in a weird position, slightly macabre.  
 I haven't heard a car in the street for a while.  
   
-And I have that feeling,  
-that diorama effect  
-as if it was all scenography.  
 A silent theatre play with no audience,  
 wax figurines in the museum,  
 The nativity scene in the church  
 of my old school.  
-A dollhouse inside a wardrobe.  
+Scenography lights inside a bar.
   
 When I rented the apartment it was empty,  
 and I will need to empty it when I leave.  

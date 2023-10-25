@@ -13,14 +13,8 @@ de reproduir en un paper en blanc
 I veig, o recordo, el teu cos nu,  
 desfent-se gota a gota, brillants  
 ressegueixen camins fins ajuntar-se  
-i capbussar-se en el gresol.  
-  
-Desitjo que el tren s'aturi,  
-no em cal anar més endavant.  
-Però a través de les parpelles,  
-veig com la llum desapareix.  
-  
-  
+i capbussar-se en el gresol. 
+
 Alloy  
   
 Still drowsy on a cold morning,  
@@ -38,8 +32,6 @@ melting drop by drop, shimmering,
 following paths until joining,  
 and plunging into the crucible.  
   
-I wish the train would stop,  
-I do not need to go further.  
-But through my eyelids  
-I see the light disappear  
+
+
   

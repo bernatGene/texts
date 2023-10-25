@@ -1,4 +1,4 @@
-Encorat tensament entre roques negres,  
+Ancorat tensament entre roques negres,  
 Esmolades,  
 El meu cos és esmolat també.  
 Núvols insulars i vent atlàntic,  

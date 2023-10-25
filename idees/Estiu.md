@@ -1,0 +1,1 @@
+Cada segon que passo sense sentir fred és motiu de celebració absoluta 

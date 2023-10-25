@@ -9,6 +9,10 @@ Es parteixen i cargolen, recursives i tortuoses.
 Caminaria; amunt per sortir d'aquesta vall.  
 Però de les cames només me'n queda la sang.  
 I s'escola com l'aigua d'un rierol.  
+
+Doncs si no puc ser individu voldria ser aire,
+aigua, branques i totes les pedres d'una tartera.
+Abastir la muntanya sencera per a desapareixer.
   
 ---  
   
