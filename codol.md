@@ -27,4 +27,8 @@ They split and twist, recursive and tortuous.
 I would walk, uphill to escape this valley.  
 But of my legs, just the blood remains.  
 And it drains down like the water of a creek.  
+
+If I cannot be, I'd like to be air,
+water, branches and all the rocks of a scree.
+cover the whole mountain to disappear. 
   

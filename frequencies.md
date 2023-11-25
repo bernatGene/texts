@@ -47,7 +47,7 @@ I don't remember letting it go.
 Too focused on the search,  
 I might have set it aside.  
 To free my hands,  
-uncounciously desiring mobility.  
+unconsciously desiring mobility.  
   
 Now, my vision is blurred  
 and I can't find it back.  

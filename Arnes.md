@@ -20,10 +20,10 @@ in her circular field of view.
 She resolutely sets the course forward,  
 she will trace a line amid the dark.
 
-But the moon turns and turns around her.  
+But the moon turns and turns around her.
 And she swirls and swirls, and the insect  
 ends up throwing itself, unconsciously,  
-into a spiral of suicidal ends.
+into a spiral of fateful ends.
 
 Models of perception that were so simple, 
 so unjustly discredited at once.

@@ -17,9 +17,9 @@ i caldrà buidar-lo quan marxi.
 Mentrestant faig diorames per als ulls de ningú.  
   
 ---  
-The orange streetlight sweeps through the blue curtains.  
+The orange streetlight seeps through the blue curtains.  
 I'm laying on the rough rug that I bought.  
-The head resting against the base of my anthracite grey sofa.  
+The head resting against the base of my anthracite-grey sofa.  
   
 I can barely make out my reflection on the screen of the unplugged TV.  
 I lay in a weird position, slightly macabre.  

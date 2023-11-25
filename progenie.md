@@ -11,7 +11,7 @@ aguanti la temperatura ambient ideal per a la divisió cel·lular
 Quan arribi el novembre, trauré l'edredó de plomes.
 I després de sopar un brou calent, amb col, pastanaga, carn i arròs,
 m'arrauliré dins el llit, com una bossa de plàstic plena  
-de deixalles i em taparé per encoratjar el procés de putrefacció.
+de deixalles i em taparé per encoratjar la putrefacció..-digestió.
 
 ---
 
@@ -28,6 +28,5 @@ the ideal ambient temperature for celullar division holds.
 When November comes, I will take out the feather duvet.
 After dinner, hot broth with cabbage, carrot, meat and rice,
 I'll curl up into my bed, like a plastic bag full of waste
-and I will cover myself to encourage the process of
-putrefaction..-I mean, digestion
+and I will cover myself to encourage putrefaction..-I mean, digestion
 

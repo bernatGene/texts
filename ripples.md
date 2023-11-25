@@ -17,19 +17,19 @@ you should hear the cacophony
 
 El sol baix pinta l'esquena de la muntanya.  
 El còdol salta tres cops i s'enfonsa a l'estany.  
- Les ones s'expandeixen cap enfora,  
-    fins als meus ulls, la meva ment, com un diapasó,  
-    ressona la freqüència de l'instant,  
-    allargant la nota el que dura una vida.  
-      
-    L'escena encara existeix,  
-    part de la cadena causal directa,  
-    vibrant, tan real com el moment mateix.  
-      
-    La memòria no és virtual. L'instant viscut no és un concepte.  
-    Mentre ara sec aquí, si t'apropes i escoltes amb atenció,  
-    hauries de poder sentir la cacofonia  
-    d'un grapat d'anys esdevenint-se a la vegada.
+Les ones s'expandeixen cap enfora,  
+fins als meus ulls, la meva ment, com un diapasó,  
+ressona la freqüència de l'instant,  
+allargant la nota el que dura una vida.  
+  
+L'escena encara existeix,  
+part de la cadena causal directa,  
+vibrant, tan real com el moment mateix.  
+  
+La memòria no és virtual. L'instant viscut no és un concepte.  
+Mentre ara sec aquí, si t'apropes i escoltes amb atenció,  
+hauries de poder sentir la cacofonia  
+d'un grapat d'anys esdevenint-se a la vegada.
 
 
 
